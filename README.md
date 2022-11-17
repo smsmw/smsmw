@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @smsmw
+- 👀 I’m interested in coding :0 volleyball and gaming 
+- 🌱 I’m currently learning computer science
+- 📫 How to reach me ig: @photo__perfector
